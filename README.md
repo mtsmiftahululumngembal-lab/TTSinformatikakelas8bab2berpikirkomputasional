@@ -1,0 +1,1 @@
+# TTSinformatikakelas8bab2berpikirkomputasional
